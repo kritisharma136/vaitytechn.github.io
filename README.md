@@ -1,0 +1,1 @@
+# vaitytechn.github.io
